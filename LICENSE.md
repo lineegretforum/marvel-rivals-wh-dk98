@@ -1,4 +1,4 @@
-
+Atualizado Marvel Rivals traps WH é o melhor Marvel Rivals traps WH com ESP e mira automática. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
